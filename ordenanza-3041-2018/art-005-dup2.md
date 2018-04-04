@@ -1,0 +1,1 @@
+Art. 5º:La erogación resultante de lo dispuesto en el Artículo 1º se imputará a: Jurisdicción 1110111000 – Secretaría de Desarrollo Social y Educación, Programa 29 – Educación, Partida 5.1.3.1 “Becas Estudiantes Universitarios”, Fuente de Financiamiento 132 de “Origen Provincial”- Afectación 1140300, del Presupuesto de Gastos vigente.

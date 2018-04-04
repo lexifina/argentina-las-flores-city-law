@@ -1,0 +1,1 @@
+Art. 4º: Autorizase al DE a realizar las modificaciones presupuestarias necesarias a fin de disponer de fondos suficientes para la Creación del Fondo solicitado y a modificar el Reglamento General de Becas.

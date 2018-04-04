@@ -1,0 +1,1 @@
+Art. 3°.- Las becas que se otorguen serán anuales, pagaderas en diez (10) cuotas mensuales consecutivas, constituyendo un beneficio de carácter personal e intransferible del becario; y su cobro no será incompatible con otros beneficios de carácter similar.

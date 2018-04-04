@@ -1,0 +1,1 @@
+Art. 7°.- Para adjudicar las becas a los postulantes que cumplimenten los requisitos y condiciones previstos en el artículo anterior se dará prioridad a quienes estén en condiciones de renovar el beneficio; y se evaluará la condición socioeconómica del grupo familiar y el desempeño académico del estudiante.

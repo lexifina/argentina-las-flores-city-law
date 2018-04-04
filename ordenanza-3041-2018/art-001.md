@@ -1,0 +1,1 @@
+Art. 1º: La Municipalidad de Las Flores otorgará un beneficio económico, denominado “BECAS PARA ESTUDIOS SUPERIORES”, a las personas que cumplan con los requisitos que se fijen en el “Reglamento General de Becas para Estudios Superiores”.

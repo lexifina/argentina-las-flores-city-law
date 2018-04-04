@@ -1,0 +1,1 @@
+Art. 2º:Las becas beneficiarán hasta 60 personas que cumplan con los requisitos fijados en el Reglamento, de acuerdo al orden de mérito que allí se establezca. El monto de las becas será equivalente al 13% del Salario Mínimo Vital y Móvil que fije el Poder Ejecutivo Nacional.
