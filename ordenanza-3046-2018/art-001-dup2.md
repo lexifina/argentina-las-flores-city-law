@@ -1,0 +1,1 @@
+Art. 1°: La presente ordenanza rige para los pequeños emprendimientos productivos familiares, quese desarrollen en el Partido de Las Flores y que cuenten con tramite iniciado ante la Secretaria de Desarrollo Local de la Municipalidad de Las Flores”.
