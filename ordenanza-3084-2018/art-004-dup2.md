@@ -1,0 +1,1 @@
+Artículo 4°. Contenido. La Declaración Jurada Patrimonial inicial, así como sus actualizaciones anuales, deberán contener la información requerida actualizada al 31 de diciembre del año calendario inmediatamente anterior. La Declaración Jurada Patrimonial presentada al cese del cargo o función, deberá contener la información requerida actualizada a la fecha efectiva de cese.

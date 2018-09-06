@@ -1,0 +1,1 @@
+Artículo 2°. Nóminas de sujetos obligados. La Autoridad de Aplicación será responsable de conformar y actualizar anualmente la nómina de sujetos obligados a la presentación de Declaración Jurada Patrimonial conforme lo establecido en el artículo 2° de la Ordenanza.

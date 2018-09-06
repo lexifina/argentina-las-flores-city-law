@@ -1,0 +1,1 @@
+Artículo 5º. Modalidad de presentación. Los sujetos obligados enunciados en el artículo 2°de la Ordenanza deberán presentar su Declaración Jurada Patrimonial a través de dos formularios. Un formulario contendrá los datos de carácter reservado con información sensible y el otro solamentelos datos de carácter público.
