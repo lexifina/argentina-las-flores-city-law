@@ -1,0 +1,5 @@
+Ordenanza Nº3152/19
+Ordenanza Nº 3152/19
+Las Flores, 24/05/2019
+ORDENANZA
+ORDENANZAN° 3152/19
