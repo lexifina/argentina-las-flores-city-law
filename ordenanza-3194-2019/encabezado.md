@@ -1,0 +1,5 @@
+Ordenanza Nº3194/19
+Ordenanza Nº 3194/19
+Las Flores, 24/09/2019
+ORDENANZA
+ORDENANZA N°3194/19
