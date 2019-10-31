@@ -1,0 +1,5 @@
+Ordenanza Nº3193/19
+Ordenanza Nº 3193/19
+Las Flores, 27/09/2019
+ORDENANZA
+ORDENANZA 3193/19
