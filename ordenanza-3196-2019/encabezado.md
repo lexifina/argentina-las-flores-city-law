@@ -1,0 +1,14 @@
+Ordenanza Nº3196/19
+Ordenanza Nº 3196/19
+Las Flores, 11/10/2019
+ORDENANZA
+ORDENANZA 3196/19
+Visto:
+La necesidad de desarrollar estrategias sustentables para nuestras comunidades en post del beneficio de las futuras generaciones.
+Considerando:
+En la Asamblea General del 25 de Septiembre de 2015, los Estados miembros de lasNaciones Unidas aprobaron la Agenda 2030 en la que reconocen que en la actualidad el mayor desafío mundial es la erradicación de la pobreza, afirman que sin lograrla no puede haber desarrollo sostenible alguno y proponen un plan de acción a favor de las personas y el planeta mediante el fortalecimiento de la paz universal y el acceso a la justicia. Esta iniciativa regirá los programas de desarrollo mundial durante los próximos quince años. Al adoptarla los Estados se comprometieron a movilizar los medios necesarios para su implementación mediante alianzas centradas especialmente en las necesidades de los más pobres y vulnerables. La Agenda plantea 17 Objetivos con 169 Metas de carácter integrado e indivisible que abarcan las esferas económica, social y ambiental y cada país fijará sus propias metas nacionales de acuerdo a sus retos específicos en la búsqueda del desarrollo sostenible, adecuando las metas internacionales a su propia situación social y política, previéndose que las metas propuestas deben alcanzarse en el año 2030 con metas intermedias al año 2020. De conformidad con la organización política federal de la República Argentina, muchos de los servicios sociales se encuentran bajo la responsabilidad de los Estados provinciales, por lo cual para alcanzar las metas propuestas para el año 2030 resulta necesaria la participación de las mismas en materia de salud, educación, empleo y desarrollo social entre otras.
+Asimismo, el logro de los mencionados objetivos implica que las jurisdicciones locales desarrollen sus propias metas de Desarrollo Sostenible en concordancia con las metasestablecidas en el ámbito nacional, tendiendo a superar las brechas existentes entrelas regiones del país El CNCPS se propone además sensibilizar a la sociedad en con
+junto e impulsar mecanismos de participación y colaboración con el sector privado empresarial, las universidades y las organizaciones de la sociedad civil Ambas partescomparten el objetivo de acercar a la comunidad herramientas y recursos vinculados a la promoción de derechos y de la cooperación aportando de ese modo al bienestar delas personas, la protección del planeta, el fomento de la paz y la prosperidad y el desarrollo social, económico y tecnológico de modo sostenible e igualitario, expresando su interés en el desarrollo de actividades conjuntas, para lo que estiman necesario celebrar el presente CONVENIO MARCO DE COOPERACIÓ denominado Agenda 2030.
+Por ello
+EL CONCEJO DELIBERANTE DE LAS FLORES PROPONE EL SIGUIENTE DESPACHO COMO PROYECTO DE:
+ORDENANZA
