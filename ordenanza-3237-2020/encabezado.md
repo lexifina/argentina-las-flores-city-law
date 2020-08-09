@@ -1,0 +1,5 @@
+Ordenanza Nº3237/2020
+Ordenanza Nº 3237/2020
+Las Flores, 30/06/2020
+ORDENANZA
+ORDENANZA N° 3237/2020
