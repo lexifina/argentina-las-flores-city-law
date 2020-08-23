@@ -1,0 +1,5 @@
+Ordenanza Nº3239/2020
+Ordenanza Nº 3239/2020
+Las Flores, 23/07/2020
+ORDENANZA
+ORDENANZA N° 3239/2020
