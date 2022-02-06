@@ -1,0 +1,2 @@
+Artículo 26°: Antigüedad. Por cada año de antigüedad en la Administración Pública, se traten de servicios nacionales, provinciales o municipales, se computará un uno por ciento de valor de las unidades retributivas asignadas al nivel respectivo, a partir del 1° de enero de 1996. Es decir, no afectará los porcentajes adquiridos por antigüedad al 31 de diciembre de 1995
+A partir del 1º de enero de 2022, el porcentaje mencionado en el párrafo anterior se eleva al dos por ciento (2%)
