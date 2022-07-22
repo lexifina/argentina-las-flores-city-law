@@ -1,0 +1,18 @@
+Ordenanza Nº3400/2022
+Ordenanza Nº 3400/2022
+Las Flores, 26/05/2022
+ORDENANZA
+ORDENANZA 3400/2022
+Visto:
+La Ley Nacional Nº 27628 que instituye el día 17 de mayo de todos los años como “Día del Electrodependiente por Cuestiones de Salud”, y;
+Considerando:
+Que, el 17 de mayo del año 2017 se promulga la Ley Nacional N°27.351 de “Electrodependientes por Cuestiones de Salud”, la cual denomina en su Art 1º electrodependientes por cuestiones de salud a aquellas personas que requieran de un suministro eléctrico constante y en niveles de tensión adecuados para poder alimentar el equipamiento médico prescrito por un médico matriculado y que resulte necesario para evitar riesgos en su vida o su salud. Es de destacar que la normativa estableció la creación de un Registro de Electrodependientes por Cuestiones de Salud (RECS), y que las personas inscriptas acceden en forma automática a la gratuidad del servicio eléctrico y se obliga a las prestatarias de energía eléctrica a proveerles a estos usuarios y usuarias una FAE (Fuente Alternativa de Electricidad) que les garantice un suministro eléctrico constante y en niveles de tensión adecuados para alimentar sus equipamientos médicos,
+Que, la Ley Nacional Nº 27628 instituye el 17 de mayo como “Día del Electrodependiente por Cuestiones de Salud”, en coincidencia con la fecha de promulgación por parte del Poder Ejecutivo Nacional de la Ley Nacional N° 27351, estableciéndose un día de recordatorio del compromiso de toda la sociedad en la lucha y concientización de los derechos de las personas electropendientes por cuestiones de salud,
+Que, la Provincia de Buenos Aires sancionó la Ley Nº 14988, por la cual adhiere a los términos de la Ley Nacional Nº 27351 y desde la legislatura bonaerense por iniciativa de la Senadora Gabriela, Di María se impulso la sanción de la Ley N° 15286 estableciéndose el día 17 de mayo de cada año como "Día Provincial del Electrodependiente por cuestiones de Salud, desde la cual se insta a que se promueva la realización de actividades informativas, de capacitación y acciones en general con el fin de difundir los derechos de electrodependientes por cuestiones de salud y de renovar el compromiso social y estatal con su respeto y cumplimiento, solicitándose al Poder Ejecutivo de la Prov. de Buenos Aires desarrolle campañas de difusión, educación y concientización con el fin de promover los derechos de las personas electrodependientes por cuestiones de salud y de los principios comprendidos en las normativas de referencia,
+Que, las normativas son el resultado de la organización y lucha constante de padres, madres y familiares de electrodependientes bajo la consigna “Luz para ellos”, entre otras,
+Que, representantes de la “Red Argentina de Electrodependientes” Luz para Ellos, Amar +, Familias Ame Argentina y Espacio Peco, que nuclean al vasto universo de pacientes Electrodependientes a lo largo y a lo ancho del país, han solicitado a diferentes municipios realicen acciones de acompañamiento el Día 17 de mayo, en el marco del 5to aniversario de la promulgación de la Ley N° 27.35, promoviendo y concientizando sobre la temática,
+Que, como acción, se solicitó se iluminen de AZUL palacios municipales, Concejos Deliberantes, espacios públicos, monumentos, y edificios emblemáticos de las ciudades Argentinas,
+Que, las acciones de acompañamiento, difusión de la información, visibilización y concientización que promuevan y garanticen el acceso a los derechos de todas las personas electrodependientes, debe ser un compromiso y responsabilidad ineludible del Estado.
+Por ello
+EL CONCEJO DELIBERANTE DE LA CIUDAD DE LAS FLORES APRUEBA LA SIGUIENTE
+ORDENANZA
