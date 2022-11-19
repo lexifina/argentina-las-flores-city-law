@@ -1,0 +1,1 @@
+Art. 4º: Los pagos realizados por los contribuyentes cancelando la totalidad de las tasas correspondientes al corriente año, previo a la vigencia de la presente, serán considerados definitivos, no teniendo el Municipio pretensión alguna por reclamar.
