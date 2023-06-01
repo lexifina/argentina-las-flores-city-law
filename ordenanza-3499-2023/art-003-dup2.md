@@ -1,0 +1,9 @@
+Art. 3º: Comuníquese al DE y dese al Registro Oficial del HCD.
+DADO EN LA SALA DE SESIONES DEL HCD DE LAS FLORES A LOS VEINTISIETE DIAS DEL MES DE ABRIL DEL AÑO DOS MIL VEINTITRES.
+Ariana Pertusi Prof. Fabian Blanstein
+Secretaria Presidente
+/// Corresponde Ordenanza Nº 3499/2023.-
+PROMULGADA POR DECRETO Nº 1175 DEL DEPARTAMENTO EJECUTIVO DE FECHA 3 DE MAYO DE 2023.-
+Abg. JAVIER E. DI GIANO Ing. ALBERTO C. GELENÉ
+Secretario de Gobierno Intendente Municipal
+PUBLICADA: 23 DE MAYO DE 2023
