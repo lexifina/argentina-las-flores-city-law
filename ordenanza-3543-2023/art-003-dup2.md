@@ -1,0 +1,1 @@
+Articulo 3°: Autorizase al Departamento Ejecutivo, a través del Área correspondiente, la construcción y/o colocación de reductores de velocidad al final de la calle Av. F. Carramasa s/n, donde se encuentra ubicada la Escuela de equitación y equinoterapia “Los Ranqueles”.
