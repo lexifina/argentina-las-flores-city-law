@@ -1,0 +1,8 @@
+ARTÍCULO 3º: La Comisión Organizadora y Coordinadora del HCD estará conformada por un representante de cada bloque político, un representante de la Presidencia del HCD y un delegado/a de cada institución Educativa y será la encargada de:
+a) Convocar a las Instituciones Educativas que participarán del PARLAMENTO ESTUDIANTIL.
+b) Determinar la forma de elección de los/as Parlamentarios/as Escolares, teniendo en cuenta la representación proporcional en todas las Instituciones Educativas del Partido de Las Flores que participen al momento de la convocatoria.
+c) Generar un debate sobre Políticas del interés del Parlamento Estudiantil, que involucren y preocupen a las juventudes de nuestra ciudad y que resulten de interés y prioridad para las juventudes parlamentarias, representantes de voces florenses.
+d) Capacitar y asesorar a los PARLAMENTARIOS y las PARLAMENTARIAS ESTUDIANTILES en las tareas inherentes a la labor a desarrollar.
+e) Fomentar la articulación de quienes integran el Parlamento Estudiantil con los distintos actores/as e instituciones que integran nuestra comunidad (Centros de Salud, Área de la Juventud, Cooperadoras Escolares, Centros Comunitarios, Barrios, Clubes, etc.).
+f) Remitir formalmente a través del correo electrónico del H. Concejo Deliberante las comunicaciones entre la Comisión Organizadora y Coordinadora del HCD y las instituciones educativas teniendo como destinatario el correo electrónico institucional de cada comunidad educativa.
+g) Utilizar como vía de comunicación el medio de WhatsApp creando un grupo entre todas las personas que participen del Parlamento Estudiantil para la difusión de la información pertinente.

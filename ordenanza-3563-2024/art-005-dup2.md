@@ -1,0 +1,1 @@
+ARTÍCULO 5º: El Cuerpo del Parlamento Estudiantil comunicará por nota a la Comisión Organizadora y Coordinadora del HCD su integración; el Nombre de los Bloques que lo conforman y quienes lo integran respetando la paridad de género.

@@ -1,0 +1,1 @@
+ARTÍCULO 4º: Una vez constituido el cuerpo del Parlamento Estudiantil de Las Flores, el mismo deberá elegir a las autoridades correspondientes a la Presidencia y Vicepresidencia. Lo cual será a pluralidad de voto y a mano alzada.
