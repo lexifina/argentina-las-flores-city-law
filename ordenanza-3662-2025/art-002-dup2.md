@@ -1,0 +1,1 @@
+Artículo 2°: La Secretaría de Educación de la Municipalidad de Las Flores, o el área que a futuro la reemplace, asignará un máximo de 40 becas que tendrán por finalidad facilitar el acceso y/o prosecución de estudios superiores a aquellos alumnos/as que desarrollen carreras orientadas a la salud, las cuales hayan sido previamente definidas por el Departamento Ejecutivo Municipal.
