@@ -1,0 +1,1 @@
+Artículo 4°- El Departamento Ejecutivo podrá dictar las normas reglamentarias necesarias para la organización, desarrollo y financiamiento del evento, pudiendo gestionar auspicios, patrocinios, convenios y apoyos institucionales públicos y privados.

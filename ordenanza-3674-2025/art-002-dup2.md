@@ -1,0 +1,1 @@
+Artículo 2°- La organización general estará a cargo del Departamento Ejecutivo Municipal, a través de la Secretaría de Producción, Turismo y Ambiente, en articulación con la Asociación Civil CHARCA – Charcutería y Artes Cárnicas, la Asociación de Desarrollo Local, y demás instituciones vinculadas al sector productivo, educativo y turístico.

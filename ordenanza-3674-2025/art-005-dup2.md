@@ -1,0 +1,1 @@
+Artículo 5°- Comuníquese al Ministerio de Desarrollo Agrario, al Ministerio de Producción, Ciencia e Innovación Tecnológica, y a la Legislatura de la Provincia de Buenos Aires, a los efectos de su conocimiento y eventual acompañamiento.

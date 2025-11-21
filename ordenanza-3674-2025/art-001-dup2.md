@@ -1,0 +1,1 @@
+Artículo 1°- Créase la “Fiesta Provincial de la Charcutería Artesanal”, a realizarse anualmente durante el mes de octubre, en la ciudad de Las Flores, Partido de Las Flores, Provincia de Buenos Aires.
