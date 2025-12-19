@@ -1,0 +1,24 @@
+Ordenanza Nº3676/2025
+Ordenanza Nº 3676/2025
+Las Flores, 30/10/2025
+ORDENANZA
+ORDENANZA 3676/2025
+Visto:
+La Ley Nacional Nº 26657, que declara de Interés Nacional, en todo el territorio de la República Argentina, la atención biopsicosocial, la investigación científica y epidemiológica, la asistencia a las familias víctimas del suicidio, la ley Provincial Nº 14991, y; la adhesión de este Municipio a las mismas, y que desde septiembre 2022 funciona la Mesa de Prevención en Salud Mental.
+Considerando:
+Que, en la ciudad de Las Flores se viene reuniendo mensualmente la Mesa de Prevención en Salud Mental, la misma se encuentra trabajando desde septiembre de 2022, de manera articulada con diferentes actores de instituciones locales.
+Que, dentro de las reuniones de la Mesa de Prevención en Salud Mental surgió la necesidad de modificar la ordenanza Nº 3606, incorporando el Protocolo de funcionamiento de la mencionada Mesa.
+Que, se están implementando diferentes dispositivos de abordaje, trabajando en campañas de difusión y concientización sobre esta problemática a nivel local.
+Que, de la Mesa de Prevención en Salud Mental, amparada por la Ley Nacional Nº 26657 y la Ley Provincial Nº 14991, tiene como propósitos el desarrollo de acciones y estrategias para lograr la sensibilización de la población, abordar la atención inmediata trabajando de manera articulada con las diferentes instituciones locales que abordan y atienden Problemáticas en Salud Mental, teniendo en cuenta que existe una realidad silenciosa en torno a los suicidios, desencadenado por Problemáticas en Salud Mental.
+Que, se reconoce a la Salud Mental como un proceso determinado por componentes históricos, socioeconómicos, culturales, biológicos y psicológicos, cuya preservación y mejoramiento implica una dinámica de construcción social vinculada a la concreción de los derechos humanos y sociales de toda persona.
+Que, para a Organización Mundial de la Salud, “la salud mental se define como un estado de bienestar en el cual el individuo es consciente de sus propias capacidades, puede afrontar las tensiones normales de la vida, puede trabajar de forma productiva y fructífera y es capaz de hacer una contribución a su comunidad”;
+Que, el abordaje coordinado, interdisciplinario, interinstitucional e intersectorial de las problemáticas en Salud Mental el desarrollo de servicios asistenciales, la capacitación de los recursos humanos tanto al personal de Salud como de Educación y la Promoción de la creación de redes de apoyo de la sociedad civil constituyen las estrategias a seguir para cumplir con los fines de la Ley a la que se adhirió en este Concejo.
+Que, en materia de prevención, se plantea el desarrollo de programas de capacitación destinados a los responsables en los ámbitos educativos, recreativo, laboral y en contexto de encierro, promoviéndose el desarrollo de habilidades en los equipos institucionales; extender campañas de concientización sobre factores de riesgo y generación de factores de protección a través de los medios masivos de comunicación y otros alternativos; elaborar recomendaciones y orientar a la capacitación a los medios de comunicación sobre el abordaje de las noticias vinculadas al suicidio y canales de ayuda disponibles, en concordancia con las recomendaciones de la OMS.
+Que oportunamente visitó este Recinto el Director de Prevención y Promoción de la Salud Mental y los consumos problemáticos, Sebastián Holc cuando se oficializó la adhesión a la Ley.
+Que, el suicidio es un importante problema de salud pública. Cada año más de 700.000 personas mueren por suicidio. Es la cuarta causa de muerte entre las personas de 15 a 29 años. Cada pérdida de vida no sólo es trágica en sí misma, sino que también tiene efectos profundos y devastadores en familias y comunidades enteras.
+El suicidio puede estar vinculado a factores y desafíos sociales, económicos, culturales y psicológicos múltiples, complejos e interrelacionados, incluida la negación de los derechos humanos básicos y el acceso a los recursos, así como acontecimientos vitales estresantes como la pérdida de los medios de vida, las presiones laborales o académicas, ruptura de relaciones y discriminación, entre otros.
+Que, en nuestro país se estableció en día 10 de septiembre como el “Día Nacional para la Prevención del Suicidio”, con el objetivo de concientizar acerca de esta problemática, en concordancia con lo estipulado a Nivel Internacional a través de la Organización Mundial de la Salud (OMS).
+Que, el 10 de octubre se celebra el Día Mundial de la Salud Mental, motivado en 1995 por Federación Mundial de Salud Mental junto con la OMS, que se unieron para generar conciencia en torno a las afecciones mentales.
+Por ello
+EL CONCEJO DELIBERANTE DE LAS FLORES APRUEBA Y SANCIONA LA SIGUIENTE
+ORDENANZA
