@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-las-flores",
+  "code": "AR-B-LAS-FLORES",
+  "name": "Las Flores",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-las-flores-city-law",
+  "build": "built: municipal ordinances (207 ordinances, 207 versions) from https://sibom.slyt.gba.gob.ar/cities/69",
+  "language": "es",
+  "sources": 1
+}
