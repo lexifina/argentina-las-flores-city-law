@@ -5,7 +5,7 @@
   "level": "municipality",
   "parent": "ar-b",
   "repo": "https://github.com/lexifina/argentina-las-flores-city-law",
-  "build": "built: municipal ordinances (207 ordinances, 207 versions) from https://sibom.slyt.gba.gob.ar/cities/69",
+  "build": "built: municipal ordinances (623 ordinances, 623 versions) from https://sibom.slyt.gba.gob.ar/cities/69",
   "language": "es",
   "sources": 1
 }
